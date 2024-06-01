@@ -1,2 +1,2 @@
 # ggmaster200.github.io
-[Link](https://www.mediafire.com/file/fmv4ro6dtrr8081/Win7BootUpdater.exe/file)
+[Link](https://drive.google.com/file/d/1bLqPFi02D4P-MszRnn1yHQuSCEu0janl/view?usp=sharing)
